@@ -1,4 +1,4 @@
-#  
+#  automatic Script for bridger western is the best bridger western Script, featuring private server access and anti-ban. Safe and powerful for all your
 
 
 
